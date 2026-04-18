@@ -8,9 +8,9 @@
 
 
 
-![image alt](https://github.com/icynthy/icynthy/blob/15ac757cc53fa33204f0074646359c31e727d832/Untitled1071_20260418203106.png)
+![image alt](https://github.com/icynthy/icynthy/blob/15ac757cc53fa33204f0074646359c31e727d832/Untitled1071_20260418203144.png)
 
 
  𝄞  • **idle** ~  usually ***active***  !!
 
- **DND** ~  _offtab / afk ˳ᐟ_
+   ♤  ▪︎  **DND** ~  _offtab / afk ˳ᐟ_
