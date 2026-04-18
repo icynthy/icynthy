@@ -4,7 +4,7 @@
 *feel  free  to  int  /w  me* !!
 
 *insane gambling addiction.. >*
-> *i also tend to __get attached very easily__*, so please *be cautious* `
+—  ミ *i also tend to __get attached very easily__*, so please *be cautious* `
 
 
 
@@ -12,4 +12,5 @@
 
 
  𝄞  • **idle** ~  usually ***active***  !!
+
  **DND** ~  _offtab / afk ˳ᐟ_
