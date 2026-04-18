@@ -3,7 +3,7 @@
                      𝘤 + 𝘩 𝘰𝘬𝘢𝘺 ˳ᐟ ˳ᐟ 
 *feel  free  to  int  /w  me* !!
 
-*insane gambling addiction.. >*
+![#3b7d76](*insane gambling addiction.. >*)
 —  ミ *i also tend to __get attached very easily__*, so please *be cautious* `
 
 
