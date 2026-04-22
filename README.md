@@ -18,4 +18,4 @@
 
  𝄞  • **idle** ~  usually ***active***  !!
 
- .    ♤  ▪︎  **DND** ~  _offtab / afk ˳ᐟ_
+ .    ♤  ▪︎  **busy** ~  _offtab / afk ˳ᐟ_
