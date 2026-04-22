@@ -8,6 +8,7 @@
 
 
 *chance* ***multishipper*** !  usually *ichance* but *any is also okay˳ᐟ* ❄️
+*🎲 • Aromantic — single*
 
 
 ![image alt](https://github.com/icynthy/icynthy/blob/81ed8ebd67a95e309afbcad98eb05e2cf747db36/Untitled1071_20260418215437.png)
